@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Muhammad Fauzan Taufiq. U can call me Fauzan or Ojan
+- 👀 I’m interested in Photography, Cinematography, and Design. Actually I'm not too interested in Programming
+- 🌱 I’m currently learning Programming in my lecture class! Hope i can improve my skills.
+- 📫 How to reach me is u can direct messages me on Instagram @fauzan.taufiqq
